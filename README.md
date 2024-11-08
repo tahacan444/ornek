@@ -1,4 +1,1 @@
 # ornek
-
-
-dvvdv
